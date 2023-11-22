@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **shubham.pathak02@gmail.com**
 
-- ⚡ Fun fact **"Data analysis: where numbers reveal stories, and outliers tell the tales."**
+- ⚡ Fun fact **“Data 👨🏻‍💻 is the oil 🪔 of the 21st century, and analytics is the combustion engine"🚀."**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
